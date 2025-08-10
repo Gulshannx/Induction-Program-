@@ -65,7 +65,7 @@ Then we all came out from auditorium line by line.
 I learned meany new things again.
 
 # Day 4 (04-08-2025)
-## P2P Classes (9.30-10.30)
+## 💻 P2P Classes (9.30-10.30)
 The day began with insightful class .In P2P classes our seniors starts teaching us the basic of **C++ language.** They told us how to start your first program. They told the basics of c++ .Like printing Hello world.
 They also told us where to write or program or run it.
 ## 📖 English Lecture (10.30-11.30)
@@ -99,14 +99,14 @@ It was a highly practical session, especially helpful for students new to digita
 
 ---
 # Day 5 (05-08-2025)
-### BEEE Lecture (10.30-11.30)
+### 🪫 BEEE Lecture (10.30-11.30)
 The day started with a new chapter.
 A new subject **BEEE** is added to our syallabus. **Professor 
 Harminder Kaur** .Tells about this about.They introduced the subject topics like what we would learn,etc.We learned about many new things also in this subject.
-## Chemistry Lecture (11.30-12.30)
+## 🧪 Chemistry Lecture (11.30-12.30)
 **Professor Mandeep kaur** starts taking intro of every student.Then they told about the syallabus,exam pattern, marks scheme etc .The motivated us about our attendance, assignment, studies etc.
-## Break (12.30-1.30)
+##  🍽️ Break (12.30-1.30)
 In break we got some relax, we eat snacks, lunch,cold drinks etc. 
-## Identity Card
+## 🪪 Identity Card
 After the break we all went to **TCC Seminar Hall** . Where we all submitted our copies of aadhar card,Then teachers tooks our photographs.After all we came back to home.
 The day was full with joy, learned new things and many more.
