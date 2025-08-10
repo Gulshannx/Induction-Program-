@@ -63,3 +63,40 @@ At last about 1.30 the lecture got ended.
 **Harpreet mam (physics teacher)** also gave a home work to write a statement of purpose on why you choose GNDEC,and your Branch.
 Then we all came out from auditorium line by line.
 I learned meany new things again.
+
+# Day 4 (04-08-2025)
+## P2P Classes (9.30-10.30)
+The day began with insightful class .In P2P classes our seniors starts teaching us the basic of **C++ language.** They told us how to start your first program. They told the basics of c++ .Like printing Hello world.
+They also told us where to write or program or run it.
+## 📖 English Lecture (10.30-11.30)
+In English lecture **prof Manjot kaur** tells the each student to gave your brief introduction. Then each student started introducing them selves. After the professor told about important of english communication.
+## ☕ Break(11.30-12.30)
+After the first two sessions, we had a **1-hour break** for relaxation and refreshment.
+In the break me and friend visited the whole campus or eats some snacks and colddrinks.
+
+---
+
+## 🌱 Universal Human Values – (12.30-2.30)Part 2 by Dr. Priyadarshni
+After the break, we attended the second part of the **Universal Human Values** session, conducted by **Ms. Priyadarshni**.  
+Key takeaways included:
+- Importance of empathy, respect, and harmony
+- Developing a positive mindset and responsible behavior
+- Reflecting on moral and ethical values in personal and social contexts
+
+This session encouraged self-reflection and personal growth, aligning values with our actions.
+
+---
+
+## 💻 Cosmic Club Session – Laptop Awareness(2.30-3.30)
+The day concluded with a session conducted by the **Cosmic Club**.  
+This lecture provided **useful knowledge about laptops**, including:
+- Understanding the basic components (CPU, RAM, storage, etc.)
+- Tips for laptop care and maintenance
+- Guidance on using laptops effectively for educational and professional purposes
+- They also suggested us the best laptops under the budget of 40k,50k,60k etc.
+
+It was a highly practical session, especially helpful for students new to digital learning tools.
+
+---
+
+
