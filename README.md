@@ -98,5 +98,15 @@ This lecture provided **useful knowledge about laptops**, including:
 It was a highly practical session, especially helpful for students new to digital learning tools.
 
 ---
-
-
+# Day 5 (05-08-2025)
+### BEEE Lecture (10.30-11.30)
+The day started with a new chapter.
+A new subject **BEEE** is added to our syallabus. **Professor 
+Harminder Kaur** .Tells about this about.They introduced the subject topics like what we would learn,etc.We learned about many new things also in this subject.
+## Chemistry Lecture (11.30-12.30)
+**Professor Mandeep kaur** starts taking intro of every student.Then they told about the syallabus,exam pattern, marks scheme etc .The motivated us about our attendance, assignment, studies etc.
+## Break (12.30-1.30)
+In break we got some relax, we eat snacks, lunch,cold drinks etc. 
+## Identity Card
+After the break we all went to **TCC Seminar Hall** . Where we all submitted our copies of aadhar card,Then teachers tooks our photographs.After all we came back to home.
+The day was full with joy, learned new things and many more.
